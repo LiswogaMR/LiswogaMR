@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Liswoga Moses Rofhiwa
 - 👀 I’m interested in Software Development
-- 🌱 I’m currently Working at Vexall as a Software Developer.
 - 💞️ I’m looking to collaborate on anything that has to do with software development
 - 📫 How to reach me Cell: 0767687777 or mail: LISWOGAR1@gmail.com
 - 
